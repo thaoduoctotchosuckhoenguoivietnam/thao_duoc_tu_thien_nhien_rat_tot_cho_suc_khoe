@@ -72,6 +72,7 @@ Lavender- hay hoa oải hương có tính chất sát trùng có tác dụng hi�
 23. Hoa St John's Wort
 Là một loại hoa dại ở châu Âu, hoa St John's Wort được dùng trong điều trị trầm cảm, lo lắng, đau dây thần kinh và mất ngủ.
 
+
 CÔNG TY THẢO DƯỢC TỐT CÂY XANH HANOI
 
 ĐỊA CHỈ: KĐT Hoà Lạc, Quốc Oai, Hà Nội
